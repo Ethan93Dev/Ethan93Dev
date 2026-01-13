@@ -17,7 +17,11 @@ I’ve built over 100 public repos, but privately… it’s probably more than 2
 If you want to learn how I do it, my books and course are available here!
 
 Fun Facts 😄
+
 • I have two cats
+
 • coffee is my coding helper
+
 • Naruto is my favorite anime
+
 • Hobbies: anime, gym,
