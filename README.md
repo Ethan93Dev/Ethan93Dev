@@ -18,7 +18,7 @@ If you want to learn how I do it, my books and course are available here!
 
 Fun Facts 😄
 
-• I have two cats
+• I have two dogs
 
 • coffee is my coding helper
 
